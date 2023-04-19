@@ -1,1 +1,2 @@
-Juan Miguel Rojas 2227527
+Juan Miguel Rojas 2227527  
+Margarita Grisales 2183460
